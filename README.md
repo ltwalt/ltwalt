@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Here are some ideas to get you started:
+### Welcome to Walt's Github Library!
 
 - 🔭 I’m currently working on ... Analysis on the impact of analytics on professional sports
 - 🌱 I’m currently learning ... Machine learning testing techneques

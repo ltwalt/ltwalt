@@ -5,4 +5,4 @@
 - 📫 How to reach me: ... ltwalt@gmail.com
 - ⚡ Fun fact: ... I have spotted for several race car teams IRL
 
-[<img src="2020-12-23_9-55-05.jpg">](https://waltdegrange.com/)
+[<img src="2021-01-16_13-13-54.jpg">](https://waltdegrange.com/)
